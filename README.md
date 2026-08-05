@@ -45,4 +45,4 @@ Jennifier Jiang, GitHub Username @jen051
 
 Kat Jeong, GitHub Username @suhinjeong
 
-Michelle Park, GitHub Username @park.yj.michelle@gmail.com
+Michelle Park, GitHub Username @michellepark77
